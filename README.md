@@ -1,0 +1,1 @@
+This is Adonai's first git project! Feel astounded at my prowess to reach this far! MWHAHAHAHAHA!!!
